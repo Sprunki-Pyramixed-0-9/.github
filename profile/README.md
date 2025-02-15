@@ -1,6 +1,6 @@
 # Sprunki Pyramixed 0.9
 
-Dive into the exhilarating world of **Sprunki Pyramixed 0.9**, an innovative music creation game available on the Sprunkly Play platform. 
+Dive into the exhilarating world of **Sprunki Pyramixed Update 0.9**, an innovative music creation game available on the Sprunkly Play platform. 
 
 👉👉 Click to play [Sprunki Pyramixed 0.9](https://sprunkly.org/game/sprunki-pyramixed)
 
